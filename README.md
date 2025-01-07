@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning final year B.Tech
 - 💞️ I’m looking to collaborate on github 
 - 📫 How to reach me www.linkedin.com/in/vanaja-rangamreddy-1311a0291
-- 😄 Pronouns: vanaja
+- 😄 Pronouns:She
 - ⚡ Fun fact: ...
 
 <!---
